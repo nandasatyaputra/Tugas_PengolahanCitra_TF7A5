@@ -1,0 +1,1 @@
+# Tugas_PengolahanCitra_TF7A5
